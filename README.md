@@ -1,5 +1,5 @@
 # Dilmi Sankalpani
-# My name is Dilmi Sankalpani
+# Dilmi Sankalpani
 # Address: “Dilmi”, N/Haggithakanda, Kirama.
 # Phone: 0760800355 
 # Email ID: Dilmisankalpani2000@gmail.com 
